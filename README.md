@@ -1,18 +1,18 @@
 # Nadhya
 
 ## Meus gostos:
-musicas
+🎶musicas🎶
 
-ver filmes, series
+🎥ver filmes, series🎥 
 
-dançar
+💃dança💃r
 
-Dormir
+😴Dormir😴
 
 ## O que quero fazer:
 
-- Por enquanto quero cursar medicina...
-- Ter uma vida bem sucedida no futuro
+- Por enquanto quero cursar medicina⚕️...
+- Ter uma vida bem sucedida no futuro💲
 - conhecer varios paises...
 
 **Pode me encontrar**
