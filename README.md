@@ -19,6 +19,3 @@
 
 - @xnadhya_
 - nadhya.souza@escola.pr.gov.br
-
-<!---
-Nadhyasouza/nadhya is a ⭐ special  ⭐ repository because its ´README.md´ (this file) appears on your Github
