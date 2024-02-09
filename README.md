@@ -1,4 +1,4 @@
-# Nadhya 🦋
+# Nadhya🦋
 
 ## Meus gostos:
 🎶musicas🎶
